@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RenattoGuzman
+- 🌱 I’m currently learning Computer Science on UVG
+- 💞️ 
+- 📫 You can reach me on discord: Tatto #1969
